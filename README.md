@@ -1,4 +1,4 @@
-# Public-Speaking-Made-Easy-with-Video-Background-Remove
+# Public-Speaking-Made-Easy-with-Video-Background-Remover
 
 The thing which is most likely preferable for personal and professional communication is virtual speaking.  Video is the key to online conferences, webinars, and training sessions. Although this format is an open door, it brings about challenges as well. Visual distraction is one of the largest setbacks. The surrounding environment in a video determines the level of attention and focus you get from your audience. In CapCut Web, the [background remover](https://www.capcut.com/tools/video-background-remover) tool will assist you in eliminating the distractions and ensuring your image remains professional.
 
